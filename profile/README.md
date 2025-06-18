@@ -1,3 +1,3 @@
 # 🧨 BAJANDO PEPA 💊🚗
 
-![Bajando pepa con Naze](https://scontent.flim19-1.fna.fbcdn.net/v/t1.6435-9/37918313_2046576015473868_7112074021047496704_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=9267fe&_nc_ohc=XXXXXXXXXXX&_nc_ht=scontent.flim19-1.fna&oh=OH_VALUE_AQUÍ&oe=FECHA_AQUÍ)
+![Bajando pepa con Naze](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRst1hffZFSU53nUis68MsI9VvSQ3xrcE8dBg&s)
